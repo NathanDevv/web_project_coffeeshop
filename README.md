@@ -70,4 +70,4 @@ Redes sociales
 Facebook
 Instagram
 
-© 2024 Tu nombre
+© 2024 Nathan Torres
